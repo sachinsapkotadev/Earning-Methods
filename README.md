@@ -1,0 +1,2 @@
+# Earning Methods
+Earning Methods 
